@@ -10,4 +10,3 @@ https://x.com/villagewal17859
 https://www.meesho.com/VillageWala?ms=2
 https://www.amazon.in/s?k=UGM%20Fresh%20VILLAGE%20WALA...
 
-![image](https://github.com/user-attachments/assets/c4188d01-b2e2-4827-95a9-2a63a7cc4d72)
